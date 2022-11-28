@@ -1,1 +1,1 @@
-Just decided to do a book on a random Saturday :)
+Just decided to start a book on a random Sunday :)
